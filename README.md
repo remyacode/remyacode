@@ -10,7 +10,7 @@
 
 <br/>
 
-🏆 **Top 100 · Google Patchamomma 2026 · RoadShield** &nbsp;·&nbsp; 🚀 **Google AI Builder Cup 2026 — Grand Finale, Singapore**
+🏆 **Top 100 · Google Patchamomma 2026 · RoadShield** &nbsp;·&nbsp; 
 
 </div>
 
